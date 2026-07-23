@@ -1,4 +1,4 @@
 # radio_45
 ыоыоыыооыыооы
 cgfcb,j [jhjij
-/Uncanny_cat.webp
+![ГАЛИ](/Uncanny_cat.webp)
